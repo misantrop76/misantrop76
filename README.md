@@ -7,4 +7,4 @@ J'ai exploré divers langages et technologies à travers de nombreux projets, no
 
 🚀 Je suis à la recherche d'une alternance ! Si mon profil t'intéresse, n'hésite pas à me contacter.
 
-📫 Me contacter : [Ajoute ton email ou LinkedIn]
+📫 Me contacter : https://www.linkedin.com/in/mathieu-minet/
